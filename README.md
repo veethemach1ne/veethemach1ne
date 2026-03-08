@@ -1,6 +1,10 @@
-## Pay attention to me! 
-
-![4662](https://github.com/user-attachments/assets/85352133-336b-478c-b6c3-8eebd7192420)
+## LEEOOOOOOONNNN
 
 
-## currently wip
+![4879](https://github.com/user-attachments/assets/fe355c34-5682-4bdf-a7c6-08917eca9441)
+
+
+
+## wei / vee / pixel / Kiki / kikis
+
+dat all for now sryz- -_-
