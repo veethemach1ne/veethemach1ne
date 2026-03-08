@@ -5,6 +5,6 @@
 
 
 
-## wei / vee / pixel / Kiki / kikis
+## wei / vee / pixel / kiki / kikis
 
 dat all for now sryz- -_-
