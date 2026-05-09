@@ -1,13 +1,11 @@
-## currently work in progress
+## working.
+
+![7200](https://github.com/user-attachments/assets/a02e0d03-8797-4ab3-8290-f711851c6fe4)
+
+   *Hamilton doesn't hesitate, he takes and he takes.*
+
+   > ze/vee/skin/front
+> 
+                                                          
 
 
-![6567](https://github.com/user-attachments/assets/e8fcf7f7-0ea7-42cb-a3dd-d341b58533a2)
-
-
-
-
-
-## wei / vee / pixel / kiki / kikis
-
-dat all for now sryz- -_-
-                                                            
